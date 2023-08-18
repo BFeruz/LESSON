@@ -1,2 +1,0 @@
-CODEACADEMY
-Feruz Bahodirov
